@@ -26,7 +26,7 @@ _род деятельности_ : __студент__
      2. _K-Pop_: любимые группы - **Bts**, **MonstaX**,**HyunA**, **TRCNG** и **EXO** (если Вы еще не знакомы с K-Pop, то информацию о нем Вы найдете, перейдя по данной ссылке [Korean pop](https://ru.wikipedia.org/wiki/K-pop))
      3. _Rock_: любимые исполнители - **Dir en Grey** ( [Dir en grey](https://ru.wikipedia.org/wiki/Dir_en_grey)), **My chemical Romance**, **One Ok Rock**([One Ok Rock](https://ru.wikipedia.org/wiki/One_Ok_Rock))
      
- * **аниме**: я большой фанат аниме, могу пересматривать **_одну серию по несколько раз_** и мне это никогда не докучает, потому что **_каждый раз_** я нахожу новые моменты. Если Вы тоже жить не можете без аниме, то посмотреть его можно, перейдя по этой ссылке  http://animevost.org/?action=mobiledisable или по этой [animevost.org](http://animevost.org/?action=mobiledisable "Сайт Animevost")
+ * **аниме**: я большой фанат аниме, могу пересматривать **_одну серию по несколько раз_**, и мне это никогда не докучает, потому что **_каждый раз_** я нахожу новые моменты. Если Вы тоже жить не можете без аниме, то посмотреть его можно, перейдя по этой ссылке  http://animevost.org/?action=mobiledisable или по этой [animevost.org](http://animevost.org/?action=mobiledisable "Сайт Animevost")
  
  * **прочие интересы**: рисование, сериалы, кино и, конечно же, архитектура и живопись
  
